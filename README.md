@@ -1,2 +1,2 @@
-# kalurege.github.io
+Kalurege and his lame ass projects ;)
 Projects done, doing and will do will lie here forever and ever........................................
